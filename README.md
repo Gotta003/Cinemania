@@ -1,0 +1,2 @@
+# Cinemania
+Cinemania Balatro Mod
